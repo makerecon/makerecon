@@ -1,8 +1,9 @@
 Hi, I’m @makerecon ,I’m interested in economics and academia. 🌱 I’m currently learning Agent Based Modeling for Economics. 📫 How to reach me at makerecon@gmail.com
 
 You can follow my writting at :
-                                    ->Substack: https://dailyecon.substack.com/
-                                    ->Medium at makerecon
+                                   
+                                   Substack: https://dailyecon.substack.com/
+                                   
 
 As I plan to start my graduate school in the next fall feel free to email me.
 
