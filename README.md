@@ -2,7 +2,8 @@ Hi, I’m @makerecon ,I’m interested in economics and academia. 🌱 I’m cur
 
 You can follow my writting at :
                                    
-                                   Substack: https://dailyecon.substack.com/
+Substack:  
+          https://dailyecon.substack.com
                                    
 
 As I plan to start my graduate school in the next fall feel free to email me.
